@@ -3,3 +3,5 @@ We have made 3 different but ironically similar 3 strategies but all 3 times ana
 Also we will be glad to know you found this strategy helpful.
 this research have helped our ownselves but our main concern was to provide some delighting information and we hope we did good job. 
 Thank you! 
+
+ contact info : Discord - Tyler Durden#5997 Gmail - gavinsandhu177@gmail.com
